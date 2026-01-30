@@ -1,3 +1,2 @@
-- I’m @TERMZL0ckd0wn
-- I’m interested in server administration and ethical hacking
-- I’m currently learning hacking
+### Just a random IT guy does anything with his free will.
+Not really active unless it's a project I want to dedicate with little a** motivation.
